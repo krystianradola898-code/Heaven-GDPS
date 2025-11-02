@@ -1,0 +1,5 @@
+# Heaven GDPS
+made by havendev
+contact me: @haventhedev on discord.
+
+TO DOWNLOAD LAUNCHER USE THE WEBSITE AND THERE ARE THE DOWNLOADS THIS IS NOT THE CORRECT DOWNLOAD OF HEAVEN GDPS!!
